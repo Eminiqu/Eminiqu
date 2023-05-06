@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Eminiqu
 - 👀 I’m interested in my studies...
-- 🌱 I’m currently learning japanese, korean and spanish
+- 🌱 I’m currently learning japanese,and spanish
 - 💞️ I’m looking to collaborate on 17
 - 📫 How to reach me ?
 
